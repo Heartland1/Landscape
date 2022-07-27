@@ -1,1 +1,3 @@
 # Landscape
+HEARTLAND is a <a href="https://heartlandcompany.com/">Landscape Management Company</a> in Kansas City.
+With a forward-thinking business dedicated to forming connections and presenting quality service through well-known commercial landscape businesses across the Central United States. By conducting our company with a clear goal of perfection, industry best practices, and the suitable equipment for the work, as well as ongoing guidance and training, we serve the spectacular services in extraordinary ways. In the markets where they operate, our landscaping companies are just the first pick for employees and customers.
